@@ -1,1 +1,0 @@
-# ShoppinglyX.github.io
